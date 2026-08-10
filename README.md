@@ -1,0 +1,1 @@
+# EMR-AI-Scribe-Medical-Platform-Showcase
